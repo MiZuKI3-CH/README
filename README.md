@@ -1,3 +1,4 @@
+MiZuKI3 is thinking....
 Hi MiZuKI3 here! ♡ ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 Fandoms i enjoy! >_< CH/FNAF/DSMP (maybe)/SB
 Status in game ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
@@ -12,4 +13,13 @@ Status in game ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
         FNAF fan!! fav characters Michael,C.C,Fnaf 2,Fnaf 4,Fnaf 1
         DSMP fan!! kinda) fav characters Quackity,tommyinnit, tubbo,Jshaltt,Dream,Skeppy
         SB fan!! fav planets Mercury,Mars,Neptune. Fav dwarf planets Pluto,haumea. fav moons Triton,Luna,Phobos and Deimos,Europa,Titan,Ganymade,Prometheus, and Callisto
+        Lastly⋆𐙚₊˚⊹♡
+                              -Feel free to interact with me in game
+                              - C+H
+                              -do not copy my skins if u see me in game!
+                              -Sometimes Dniuf
+                              - INT
+                        (˶˃ ᵕ ˂˶)Thanks for reading hope  you have a good day/evening/night/midnight Bye!!! ๋࣭⭑ֶֶֶָָָ֢֢֢𖹭𖦹˚ ༘ ೀ⋆｡˚
+                                     MiZuKI3 out!1!!1
+                                                                     *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
         
