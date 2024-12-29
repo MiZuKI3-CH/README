@@ -4,7 +4,7 @@ Fandoms i enjoy! >_< CH/FNAF/DSMP (maybe)/SB/FPE/Murderer Drones
 Status in game ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
        *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
   Online-Haging out with friends or you can feel free to chat with me . ݁₊ ⊹ . ݁˖ . ݁. ݁₊ ⊹ . ݁˖ . ݁
-  Away-off tab or dniuf ˚ ༘ ೀ⋆｡˚𖦹
+  Away-making skins or dniuf ˚ ༘ ೀ⋆｡˚𖦹
   Busy- making skins or drawing,sleeping,off tab,eating etc ᶻ 𝗓 𐰁
                       Things about me!! :D
                        ──── ୨୧ ────𐔌 
@@ -20,7 +20,9 @@ Status in game ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
                               - C+H
                               -do not copy my skins if u see me in game!
                               -Sometimes Dniuf
-                              - INT
+                              - i accept friend requests most of the time!
+                              -im fine with boops or kisses
+                              -and last but no least dont ask me to be your wife i alr got one (Bri)
                         (˶˃ ᵕ ˂˶)Thanks for reading hope  you have a good day/evening/night/midnight Bye!!! ๋࣭⭑ֶֶֶָָָ֢֢֢𖹭𖦹˚ ༘ ೀ⋆｡˚
                                      MiZuKI3 out!1!!1
                                                                      *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
