@@ -31,7 +31,7 @@ Status in game ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
                               - i accept friend requests most of the time!
                               -im fine with boops or kisses
                               -i adopt kids in pony town (like parent figure) currently have one child SC
-                              -and last but no least dont ask me to be your wife i alr got one (Bri)
+                              -and last but not least dont ask me to be your wife i alr got one (Bri)
                         (˶˃ ᵕ ˂˶)Thanks for reading hope  you have a good day/evening/night/midnight Bye!!! ๋࣭⭑ֶֶֶָָָ֢֢֢𖹭𖦹˚ ༘ ೀ⋆｡˚
                                      MiZuKI3 out!1!!1
                                                                      *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
