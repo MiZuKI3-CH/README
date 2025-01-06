@@ -21,8 +21,7 @@ Status in game ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
         -state ive gone to in the USA Texas,Oklahoma,Vermont.
         ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖
         Things i dislike
-        -People who use caps all the time
-        - i cant really think of anytihing else :(
+        -adding this soon....
                      Lastly⋆𐙚₊˚⊹♡
                               -Feel free to interact with me in game
                               - C+H
